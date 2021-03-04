@@ -1,10 +1,10 @@
 Bozhkov Alexnder
 ================
 
-Belarus                                        Minsk
-----------------------------------------------------  
-bam291998@gmail.com                    +375291735962
-----------------------------------------------------
+Contact information
+-------------------
+
+Belarus, Minsk. e-mail: bam291998@gmail.com tel. +375291735962
 
 Brief information about myself
 ------------------------------
